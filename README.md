@@ -1,7 +1,7 @@
-你好 ╰┈➤ Free-Lance Gfx designer from Denmark. ☽｡⋆ 2 years of exp )<br/v>
+你好 ╰┈➤ Free-Lance Gfx designer from Denmark. ☽｡⋆ 2 years of exp )
 
-I dont have any alternative accounts. Rarely online anymore.<br/v>
+I dont have any alternative accounts. Rarely online anymore.
 
 Contact me on ☟<br/v>
-Mail: Velicallypublic@gmail.com<br/v>
-Discord: Velically (Dms might be closed)<br/v>
+Mail: Velicallypublic@gmail.com
+Discord: Velically (Dms might be closed)
