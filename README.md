@@ -4,3 +4,5 @@ I dont have any alternative accounts. Rarely online.
 
     Discord: Velically
     Mail: Velicallypublic@gmail.com
+    Twitter: Velically
+
