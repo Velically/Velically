@@ -2,7 +2,7 @@
 
 I dont have any alternative accounts. Rarely online anymore.
 
-Contact me on ☟<br/v>
+Contact me on ☟
 Mail: Velicallypublic@gmail.com
 
 Discord: Velically (Dms might be closed)
